@@ -1,0 +1,1 @@
+See: http://forums.mcbans.com/topic/698-mcbans-bukkit-patch-tutorial/page__pid__2506#entry2506
